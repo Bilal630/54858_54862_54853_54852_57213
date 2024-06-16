@@ -9,6 +9,4 @@ Yagubzade Ilkin (54862)
 
 Ibrahimov Azar (54853)
 
-Hasanov Mirsadig (54852)
-
 Jalilov Elvin (57213)
